@@ -9,5 +9,5 @@
 - ChatGPT
 
 ### texte
-
+ à faire
 ![gif](https://i.gifer.com/BMmR.gif)
